@@ -1,4 +1,5 @@
-![MASTERHEAD](https://hizliresim.com/akj8y5vu)
+![MASTERHEAD](<img width="1024" height="254" alt="efe23" src="https://github.com/user-attachments/assets/0517a0d4-eaa8-41c6-a31d-5053b6e52584" />)
+
 
 
 
