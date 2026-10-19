@@ -1,4 +1,4 @@
-![MASTERHEAD](https://media.licdn.com/dms/image/v2/C4D03AQG_oMvbZM4R3g/profile-displayphoto-shrink_400_400/profile-displayphoto-shrink_400_400/0/1660041798483?e=1793836800&v=beta&t=Lo4bH4_yBx4q9AhdUIuu9PUX4HWbiWRmPP6Tm--F9ws)
+![MASTERHEAD](https://hizliresim.com/akj8y5vu)
 
 
 
